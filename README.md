@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @TheTeen13
 - 👀 I’m interested in gaming
-- 💞️ I’m looking to collaborate on nothing
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like minecraft
 
